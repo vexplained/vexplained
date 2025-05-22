@@ -1,3 +1,3 @@
 ## About me
 
-Coding in my leisure
+Coding in my leisure ✨🌱
